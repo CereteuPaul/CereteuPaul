@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on developing my future
+🔭 I’m currently a student in the final year, working on developing my future on a professional and personal plan.
 
 
 ## 🌐 Socials:
