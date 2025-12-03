@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently a student in the final year, working on developing my future on a professional and personal plan.
+🔭 I’m currently a student in the 4th year at the Technical University of Cluj-Napoca, and my main focus right now is working on developing my future on a professional and personal plan.
 
 
 ## 🌐 Socials:
